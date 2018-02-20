@@ -1,2 +1,2 @@
-Turn dimes to dollars,
-and turn dollars into dreams.
+Turn dxmes to dollars,
+and turn dollars into dxamonds.
